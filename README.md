@@ -1,3 +1,4 @@
 <p align="center">
-<img width="500" height="698" alt="Only Silence Remains _ Honkai_ Star Rail Wiki _ Fandom" src="https://github.com/user-attachments/assets/c0b7ba16-02eb-4236-9755-6764b39421c6" />
+<img width="600" height="726" alt="@羽筳元酒 on 小红书_Weibo _ Code_ 5415925124 _ Full Picture Version _ × repost without credit to the artist_" src="https://github.com/user-attachments/assets/6f40d47c-acd0-4b31-9f63-6518e43b4f5a" />
 </p>
+<sub>Credits to @羽筳元酒 on 小红书</sub>
